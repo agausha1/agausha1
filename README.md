@@ -1,4 +1,4 @@
-Hi there, i'm Isaac and i love everithing about Tech.
+Hi there, i'm Usha and i love everithing about Tech.
 
 - 🔭 I’m currently working on a very special project
 - 🌱 I’m currently learning ...
